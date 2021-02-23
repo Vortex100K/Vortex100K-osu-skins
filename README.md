@@ -2,9 +2,8 @@
 Vortex100k's osu! skins. List updated and maintained by NanoKora.
 
 # [- # Vortex100k (2.0) «JL» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
-[- # Codename Bloo Purple White Ver#](https://drive.google.com/uc?export=download&id=1413Gc_22h5eQ7-Tw6zF_VxHBo_O3ioFZ)\
-[- # Vortex100k Cognizant Edited #](https://drive.google.com/uc?export=download&id=1G9_uXY4cCtpKbGjt_zzrPTRY-isCuqUK)
-![](https://i.imgur.com/jydYbHP.png)
+
+![](https://imgur.com/HWI0aJK)
 
 # [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
 ![](https://i.imgur.com/YULitvx.png)
