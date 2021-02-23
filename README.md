@@ -1,5 +1,5 @@
-# mrekk-osu-Skins
-mrekk's osu! skins. List updated and maintained by DevenRam.
+# Vortex100k-osu-Skins
+Vortex100k's osu! skins. List updated and maintained by NanoKora.
 
 # [- # Vortex100k (2.0) «JL» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
 [- # Codename Bloo Purple White Ver#](https://drive.google.com/uc?export=download&id=1413Gc_22h5eQ7-Tw6zF_VxHBo_O3ioFZ)\
