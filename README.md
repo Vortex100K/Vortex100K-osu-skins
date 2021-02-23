@@ -1,9 +1,9 @@
 # mrekk-osu-Skins
 mrekk's osu! skins. List updated and maintained by DevenRam.
 
-# [- # Mrekk (2.0) «FY» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
-[- # Mrekk (2.0) «DT» #](https://drive.google.com/uc?export=download&id=1413Gc_22h5eQ7-Tw6zF_VxHBo_O3ioFZ)\
-[- # Mrekk (2.0) «NM» #](https://drive.google.com/uc?export=download&id=1G9_uXY4cCtpKbGjt_zzrPTRY-isCuqUK)
+# [- # Vortex100k (2.0) «JL» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
+[- # Codename Bloo Purple White Ver#](https://drive.google.com/uc?export=download&id=1413Gc_22h5eQ7-Tw6zF_VxHBo_O3ioFZ)\
+[- # Vortex100k Cognizant Edited #](https://drive.google.com/uc?export=download&id=1G9_uXY4cCtpKbGjt_zzrPTRY-isCuqUK)
 ![](https://i.imgur.com/jydYbHP.png)
 
 # [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
