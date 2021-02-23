@@ -5,7 +5,7 @@ Vortex100k's osu! skins. List updated and maintained by NanoKora.
 
 ![](https://imgur.com/HWI0aJK.png)
 
-# [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
+# [CodeName Bloo purple white Ver](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
 ![](https://i.imgur.com/YULitvx.png)
 
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
