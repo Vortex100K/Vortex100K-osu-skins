@@ -1,7 +1,7 @@
 # Vortex100k-osu-Skins
 Vortex100k's osu! skins. List updated and maintained by NanoKora.
 
-# [- # Vortex100k (2.0) «JL» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
+# [- # Vortex100k (2.0) «JL» #](https://drive.google.com/file/d/1UC-HbOKuvGXPOmrgY5afzv4XILRQSxPc/view?usp=sharing)
 
 ![](https://imgur.com/HWI0aJK.png)
 
