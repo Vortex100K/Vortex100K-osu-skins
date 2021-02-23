@@ -11,8 +11,8 @@ Vortex100k's osu! skins. List updated and maintained by NanoKora.
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
-# [Dracula (old)](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
-![](https://skins.osuck.net/uploads/posts/2018-09/1537800520_oqggtfn.jpg)
+# [- #Vanati cognizant Edit (old)](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
+![](https://imgur.com/UVY1ZOl.png)
 
 # [Jace 6.25](https://download2062.mediafire.com/sgw45zsh33cg/r4mclu4kgr600n7/Jace+6.25.osk)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1563799041_3.jpg)
