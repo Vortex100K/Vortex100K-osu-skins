@@ -3,7 +3,7 @@ Vortex100k's osu! skins. List updated and maintained by NanoKora.
 
 # [- # Vortex100k (2.0) «JL» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
 
-![](https://imgur.com/HWI0aJK)
+![](https://imgur.com/HWI0aJK.png)
 
 # [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
 ![](https://i.imgur.com/YULitvx.png)
