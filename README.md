@@ -1,5 +1,5 @@
 # SkyVines Skins
-Vortex100k's osu! skins. List updated and maintained by NanoKora.
+SkyVines osu! skins. List updated and maintained by NanoKora.
 
 
 # [- # CodeName Bloo purple white Ver](https://drive.google.com/file/d/1bJoKnWM38MRrScbUanKYlIxVFemKO21q/view?usp=sharing)
