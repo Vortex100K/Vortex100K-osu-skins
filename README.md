@@ -33,4 +33,4 @@ Vortex100k osu! skins. List updated and maintained by Vortex100K.
 
 
 
-this branch was taken from devanram so all the credit goes to him
+this branch was taken from devenram so all the credit goes to him
