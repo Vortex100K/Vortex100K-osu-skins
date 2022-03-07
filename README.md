@@ -6,8 +6,8 @@ Vortex100k osu! skins. List updated and maintained by Vortex100K.
 ![](https://imgur.com/frxzQGa.png)
 
 
-# [ # HDDT Vortex100K Sussy](https://gerwi2.s-ul.eu/UpwA6ZsP)
-![](https://imgur.com/a/wWYWX0l.png)
+# [ # HDDT Vortex100K Sussy](https://www.mediafire.com/file/5j051fx5rzuep5u/NFHDDT_Vortex100K.osk/file)
+![](https://imgur.com/4PT5whx.png)
 
 
 # [WhiteCat DT Vortex100k Edit](https://drive.google.com/file/d/10MxazBGZpeG5bnE_JtgLxRWGU0mVki5U/view?usp=sharing)
