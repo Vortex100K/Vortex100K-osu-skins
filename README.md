@@ -1,6 +1,6 @@
 # Vortex100K Skins!
 Vortex100k osu! skins. List updated and maintained by Vortex100K.
-Cloned from Devanram
+Cloned from Devenram
 
 
 # [- CodeName Bloo purple white Ver](https://drive.google.com/file/d/1bJoKnWM38MRrScbUanKYlIxVFemKO21q/view?usp=sharing)
