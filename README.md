@@ -2,6 +2,8 @@
 Vortex100k osu! skins. List updated and maintained by Vortex100K.
 Cloned from Devenram
 
+# [- HDDT Vortex100K sussy 2.1](https://www.mediafire.com/file/zg3kb2zsaots78j/HDDT_Vortex100k_Sussy_2.1.osk/file)
+![](https://imgur.com/h1kmphx.png)
 
 # [- CodeName Bloo purple white Ver](https://drive.google.com/file/d/1bJoKnWM38MRrScbUanKYlIxVFemKO21q/view?usp=sharing)
 ![](https://imgur.com/frxzQGa.png)
