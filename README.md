@@ -2,6 +2,9 @@
 Vortex100k osu! skins. List updated and maintained by Vortex100K.
 Cloned from Devenram
 
+# [- ☾【PrecisionX】☽《Vortex100K》](https://www.mediafire.com/file/35erarn314d5ail/%2527%2527_%25E2%2598%25BE%25E3%2580%2590PrecisionX%25E3%2580%2591%25E2%2598%25BD%25E3%2580%258AVortex100K%25E3%2580%258B.osk/file)
+![](https://imgur.com/a/9fhdJmQ.png)
+
 # [- HDDT Vortex100K sussy 2.1](https://www.mediafire.com/file/zg3kb2zsaots78j/HDDT_Vortex100k_Sussy_2.1.osk/file)
 ![](https://imgur.com/h1kmphx.png)
 
